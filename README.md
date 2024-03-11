@@ -1,2 +1,2 @@
 # oogway-oogay-
-oogway for fun my nigga
+oogway or ugay
